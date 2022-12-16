@@ -1,4 +1,4 @@
-[YOUR github stats](https://media.licdn.com/dms/image/C4D16AQGsU3o__pQarA/profile-displaybackgroundimage-shrink_350_1400/0/1642640770953?e=1676505600&v=beta&t=NfS7teonQJ475J3oPr1ikFjC6kT0apHgMn_8Ova4NYM)
+![YOUR github stats](https://media.licdn.com/dms/image/C4D16AQGsU3o__pQarA/profile-displaybackgroundimage-shrink_350_1400/0/1642640770953?e=1676505600&v=beta&t=NfS7teonQJ475J3oPr1ikFjC6kT0apHgMn_8Ova4NYM)
 
 ### Hi 👋
 I am recent programming that start a few mounths and has created a amazin passion por coding, please let me join you guys in this beutfily world.
